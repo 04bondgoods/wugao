@@ -6,7 +6,7 @@
 海量个例整理中~ 如果链接挂了，可以点击副本看新闻图片
 ## 2018
 
-+ [弦子控诉朱军性骚扰](https://www.163.com/dy/article/HRH01CTU0553T57M.html) - [副本](pic/0011.png)
++ [弦子（原名周晓璇）诬告朱军性骚扰](https://www.163.com/dy/article/HRH01CTU0553T57M.html) - [副本](pic/0011.png)
 
 ## 2019
 
